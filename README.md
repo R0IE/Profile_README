@@ -1,6 +1,6 @@
 # 👋 Hey, I'm <Ott>  
 
-💻 **Developer*  
+💻 **Game Developer**
 ---
 
 ### 🚀 About Me
