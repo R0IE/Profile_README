@@ -1,4 +1,4 @@
-# 👋 Hey, I'm <Ott>  
+# 👋 Hey, I'm Ott  
 
 💻 **Game Developer**
 ---
